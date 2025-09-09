@@ -26,3 +26,7 @@
 3. Drain the cashews and discard the soaking water. Add the cashews to a high-powered blender along with the 1 cup water, onion/garlic, pumpkin puree, nutritional yeast, lemon juice, sage, thyme and salt. Blend until very smooth.
 
 4. Cook the pasta according to package instructions, then drain and return back to the pot you cooked them in. Pour the pumpkin sauce over the pasta, and stir over low-medium heat until it warms throughout. Serve immediately.
+
+## Notes
+
+ - Gluten-free: Use gluten free pasta.
